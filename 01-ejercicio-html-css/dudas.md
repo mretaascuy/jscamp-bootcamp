@@ -1,0 +1,1 @@
+<!-- Aquí puedes dejar tus dudas sobre el ejercicio y la corrección -->
